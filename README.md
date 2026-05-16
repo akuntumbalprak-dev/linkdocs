@@ -1,1 +1,3 @@
 # linkdocs
+
+https://docs.google.com/document/d/1Vs8C60nsnEwvUV6Iri10VdK-57ODB6VnbzGrumGcy5Q/edit?usp=sharing
